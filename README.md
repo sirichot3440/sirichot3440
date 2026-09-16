@@ -1,7 +1,7 @@
 Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif) My name is Sirichot BUTWICHIAN
 ============================================================================================================================================
 
-6740203440 KU84 E81 SE25 CPE10 KUSCS
+6740203440 KU84 E80 SE25 CPE10 KUSCS
 ------------------------------------
 <img width="400" height="225" alt="99ce134bb2afa4c5e13efe99fb0fe7ab" src="https://github.com/user-attachments/assets/d72a5cfc-a8d1-464e-bc42-d4ebd6e62bf8" />
 
