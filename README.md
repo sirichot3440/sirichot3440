@@ -3,8 +3,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 
 6740203440 KU84 E81 SE25 CPE10 KUSCS
 ------------------------------------
-<img width="435" height="519" alt="18172ba0bf9bbddf56e7235e2878d6c1" src="https://github.com/user-attachments/assets/191625b6-383c-4bf6-9e1c-bc4a005b5aec" />
-
+<img width="400" height="225" alt="99ce134bb2afa4c5e13efe99fb0fe7ab" src="https://github.com/user-attachments/assets/d72a5cfc-a8d1-464e-bc42-d4ebd6e62bf8" />
 
 * ✉️  You can contact me at [sirichot.b@ku.th](mailto:sirichot.b@ku.th)
 
